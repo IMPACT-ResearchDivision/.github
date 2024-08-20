@@ -1,3 +1,7 @@
+[
+<img width=full alt="Screenshot 2024-08-20 at 3 05 37 PM" src="https://github.com/user-attachments/assets/ccc5b814-429a-45f6-9d02-49fa65b652de">
+](url)
+
 # Industrial Management and Project Administration Contingent (I.M.P.A.C.T)
 
 ## About Us
